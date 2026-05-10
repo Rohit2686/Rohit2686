@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rohit2686
-- 👀 I’m interested in ...Life
+- 👀 I’m interested in Building Things
 - 🌱 I’m currently learning ...coding
 - 📫 How to reach me ...dhakarohitd@gmail.com 
 
